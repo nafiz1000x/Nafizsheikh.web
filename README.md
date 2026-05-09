@@ -4,8 +4,7 @@ https://nafiz1000x.github.io/Nafizsheikh.web/
 ```
 
 
-**ডেভেলপার:**
-[Nafiz Sheikh](https://nafiz1000x.github.io/Nafizsheikh.web/)
+**ডেভেলপার:**[Nafiz Sheikh](https://nafiz1000x.github.io/Nafizsheikh.web/)
 টেলিগ্রাম চ্যানেল: https://t.me/nafizsheikhtech
 
 ---
