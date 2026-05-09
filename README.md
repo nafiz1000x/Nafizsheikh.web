@@ -5,8 +5,7 @@ https://nafiz1000x.github.io/Nafizsheikh.web/
 
 
 **ডেভেলপার:**
-[Nafiz Sheikh]
-(https://nafiz1000x.github.io/Nafizsheikh.web/)
+[Nafiz Sheikh](https://nafiz1000x.github.io/Nafizsheikh.web/)
 টেলিগ্রাম চ্যানেল: https://t.me/nafizsheikhtech
 
 ---
@@ -29,8 +28,7 @@ python
 ---
 
 **যোগাযোগ এর জন্য**  
-[Nafiz profile]
-(https://nafiz1000x.github.io/Nafizsheikh.web/)
+[Nafiz profile](https://nafiz1000x.github.io/Nafizsheikh.web/)
 -
 
 ---
